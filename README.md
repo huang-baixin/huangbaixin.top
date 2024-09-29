@@ -1,1 +1,1 @@
-[adammaj.com](https://adammaj.com)
+[huangbaixin.top](https://huangbaixin.top)
